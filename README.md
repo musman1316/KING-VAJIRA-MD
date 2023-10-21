@@ -10,7 +10,7 @@
 
    <p align="center">
 <a href="https://github.com/musman1316">
-    <img src="https://i.imgur.com/M30ocqS.jpeg"  width="700px">
+    <img src="https://i.imgur.com/Ye8O7Vz.jpeg"  width="700px">
   </a>
 
 ## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝘿𝘼𝙍𝙆╺+𝙑𝘼𝙅𝙄𝙍𝘼+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+USMAN+SER+𝚃𝙴𝙰𝙼;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:𝗨ˢᵐᵃⁿ 𝗦ᵉʳ+☬𝗨ˢᵐᵃⁿ 𝗦ᵉʳ𝔸࿐;💕ඉතිං+කොහොමද🙃;😁මොකද+කරන්නෙ🌹)](https://git.io/typing-svg)
